@@ -9,4 +9,4 @@
 - 😄 Pronouns: HE/HIM
 - ⚡ Hobbies: Skating, Biking, Soccer, and Photography
 
-(Portfolio)[https://filipkujawa.me/]
+https://filipkujawa.me/
