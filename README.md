@@ -7,6 +7,6 @@
 - 🤝 I’m looking to collaborate on open source projects
 - 📫 How to reach me: Twitter: @filipkujawa_ 
 - 😄 Pronouns: HE/HIM
-- ⚡ Hobbies: Skating, Biking, Soccer, and Photography
+- ⚡ Hobbies: Water Polo, Biking, Soccer, and Photography
 
 https://filipkujawa.me/
